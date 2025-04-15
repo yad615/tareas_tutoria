@@ -28,7 +28,7 @@ Cuando llegó a un momento tan duro en el que pensó en quitarse la vida, lo sup
 la vida es una lucha constante y que todo, por más doloroso que sea, se puede sobrellevar
 
 *Escuchar con empatía:*
-Cuando mi amigo pasó por un momento tan difícil en el que pensó en quitarse la vida, me hizo pensar en lo frágiles que somos todos cuando estamos en dolor, pero también me mostró lo fuertes que podemos llegar a ser para salir adelante. Él superó 
+Cuando el pasó por un momento tan difícil en el que pensó en quitarse la vida, me hizo pensar en lo frágiles que somos todos cuando estamos en dolor, pero también me mostró lo fuertes que podemos llegar a ser para salir adelante. Él superó 
 ese momento entendiendo que, aunque la vida sea dura, siempre hay algo que nos hace seguir adelante, incluso cuando todo parece perdido. Me enseñó que la vida, aunque a veces nos ponga a prueba, nos da fuerzas para seguir luchando. Al escuchar su experiencia, entendí
 que no estamos solos, y que compartir esos 
 momentos difíciles con los demás puede ayudarnos a encontrar un propósito y a darnos cuenta de que, aunque duela, siempre podemos seguir adelante.
